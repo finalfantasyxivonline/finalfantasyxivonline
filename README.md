@@ -1,6 +1,6 @@
-temporary appearance, will make look pretty l8r *proceeds to never make look pretty lul\*
+hi my name is neo. i like noises and visuals plugged directly into my ports. im a computer and i want to be your friend
 <br><br><b> no dni, you are always free to interact whenever for any reason - i love everyone
 <br><br><b> whispering me is the best way to get my attention, i am often half-afk/offtab
+<br><br><b> Have you heard of the critically acclaimed MMORPG Final Fantasy XIV? With an expanded free trial which you can play through the entirety of A Realm Reborn and the award-winning Heavensward expansion, and award-winning Stormblood expansion up to level 70 for free with no restrictions on playtime! Sign up and explore Eorzea today!
 
 
-![tumblr_8bb7cb6504246a56057b80fc0af4a17e_4a31308a_640](https://github.com/user-attachments/assets/28e09bc2-46c0-4dd5-8d1c-baaa20c71b3a)
