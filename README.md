@@ -1,4 +1,6 @@
-i like noises and visuals plugged directly into my ports. my hobbies include writhing around on the floor and spending far too much time on [a certain mmorpg](https://na.finalfantasyxiv.com/). im a computer and i want to be your friend
-<br><br><b> no dni, you are always free to interact whenever for any reason - i love everyone
-<br><br><b> whispering me is the best way to get my attention, i am often half-afk/offtab
-<br><br><b> Have you heard of the critically acclaimed MMORPG Final Fantasy XIV? With an expanded free trial which you can play through the entirety of A Realm Reborn and the award-winning Heavensward expansion, and award-winning Stormblood expansion up to level 70 for free with no restrictions on playtime! Sign up and explore Eorzea today!
+<p align="center">yo waddup, my name is jade. i like noises and visuals. i tow the line between fact and fiction, physical and digital
+<p align="center">i am generally quite antisocial, however interaction is encouraged if you wish to do so. i have no dni, lets be friends
+<p align="center">i have many interests. the main one will always be final fantasy xiv, if you cannot tell. please ask about my current other "main" interests, they change often
+<p align="center">love yourself. keep it real, always. much love to you and yours
+<br><br><b>
+<p align="center">shoutouts to simpleflips
