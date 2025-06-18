@@ -6,4 +6,4 @@
 <br><br><b>
 <p align="center">i love my internet friends ♡
 
-‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fhaprxb7dybhtpxzmmrkvzioaa&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=a9f000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31fhaprxb7dybhtpxzmmrkvzioaa&redirect=true)
+‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fhaprxb7dybhtpxzmmrkvzioaa&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=a9f000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31fhaprxb7dybhtpxzmmrkvzioaa&redirect=true)
