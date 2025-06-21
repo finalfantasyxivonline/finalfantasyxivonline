@@ -4,4 +4,30 @@
 <p align="center">love yourself. keep it real, always. much love to you and yours
 
 ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fhaprxb7dybhtpxzmmrkvzioaa&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=true&bar_color=a9f000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31fhaprxb7dybhtpxzmmrkvzioaa&redirect=true)
-<p align="center">♡ <img src="https://graphic.neocities.org/kitten3.gif" align="center"> <img src="https://graphic.neocities.org/kitten2.gif" align="center"> <img src="https://graphic.neocities.org/kitten10.gif" align="center"> ♡
+
+  <div align="center">
+ <details>
+                                                            <summary>graphics n stuff, if you care (<b>flash/bright colors warning</b>)</summary>
+
+  <div align="center">  
+<i>currently very poorly organized. will be organized better as i add new ones. maybe. dont count on it.
+<br>this part is a constant work in progress, and will be done when the sun burns out</i>
+    
+
+<br><b>stamps</b>
+
+<img src="https://images-ext-1.discordapp.net/external/Rvas2RrFmb8dYBAeJsk2IMNNMqv6JLZO7N3feom43-k/%3Ftoken%3DeyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiXC9mXC9lYTllNjFjMi03MDFjLTQzNzktYmViNi1iOGI5N2I0OTg1N2NcL2QyMnQ1em4tZGM0OWMzNTAtOWRiZC00OWQyLWJiZGQtYmZmNWYzY2U0YWMwLnBuZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.Z6ajivPiaPfHcewPh5faEktYWI__IGOO3JISfax-C6A/https/images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/ea9e61c2-701c-4379-beb6-b8b97b49857c/d22t5zn-dc49c350-9dbd-49d2-bbdd-bff5f3ce4ac0.png/v1/fill/w_99%2Ch_56/final_fantasy_xiv_stamp_by_lovelydagger_d22t5zn-fullview.png"> <img src="https://64.media.tumblr.com/6d10b0cb7285c0743eb6a6d055ba9463/a6d3d53949489c00-9e/s100x200/c743088514c26f011e0029c1653acb6d0db4d584.pnj"> <img src="https://64.media.tumblr.com/84db8c1da2b35aff6d13b27b10d1d545/f65c88137abc2dce-49/s100x200/5874893c8cd8c275aaf459a7d4a5a8e86d1ec7d5.pnj"> <img src="https://64.media.tumblr.com/cad89837ab42aa15a4fa7248ea1d38ea/862ca621d9f19943-c1/s100x200/88de756bd80cf8667138d9eed24928af076b913c.pnj"> <img src="https://graphic.neocities.org/soulmate9.gif"> <img src="https://64.media.tumblr.com/6b8df68fa5da02ee147fd47a9da67dd6/b6645f20f48ffdb8-10/s100x200/45b1f25a741362ee5e2016a425c4b2ba12228125.gif">
+
+<br><b>blinkies</b>
+
+<img src="https://graphic.neocities.org/969132ff3t2b4u2x.gif"> <img src="https://watermelon.crd.co/assets/images/gallery21/24557b5d.gif?v=bc28efca"> <img src="https://graphic.neocities.org/6de530a0-01f7-475e-b599-68e980e51469.gif"> <img src="https://watermelon.crd.co/assets/images/gallery21/988b7a01.gif?v=bc28efca">
+<br><img src="https://watermelon.crd.co/assets/images/gallery22/9ce10986.gif?v=bc28efca"> <img src="https://graphic.neocities.org/4df35c66-0607-46a1-8f72-abf2d1eb98a6.gif"> <img src="https://64.media.tumblr.com/1ea387b5616e233da21a2c62b1f7d8eb/2ea209de5ea5c490-0a/s250x400/ee2e41c3bf9f64cbe2e115b8c957f1e51f7afc47.gif"> <img src="https://watermelon.crd.co/assets/images/gallery21/fbabd998.gif?v=bc28efca">
+<br><img src="https://64.media.tumblr.com/2f4eb696a1ce6a2d7c37c97184af8f08/0f1b87a7a0a475bf-08/s250x400/93201b81459dbc50b01b7ee8c906d29a93ed5fe3.gif"> <img src="https://graphic.neocities.org/blinki.gif"> <img src="https://graphic.neocities.org/tumblr_static_dmoh63h65uogso0kowcwo8wsg.gif"> <img src="https://graphic.neocities.org/blink3.gif">
+<br><img src="https://graphic.neocities.org/tumblr_static_5fmam9u2tqkoc0cksg4wowkkw.gif"> <img src="https://64.media.tumblr.com/62b602f4f4759ee0d8a91490d86764fa/c4a7a5ecdea47622-6c/s250x400/35e25497a7a9b3c5012645f9ebcc03ed9979038b.gif"> <img src="https://64.media.tumblr.com/f88b271a5cb99f3a0e4b9bc3a237355f/c4a7a5ecdea47622-54/s250x400/4b83763f3642c8eb7ab85ade6e9849407e39ace4.gif"> <img src="https://64.media.tumblr.com/9cbd47d33959fd209b19826c5000b6ea/8336400b422a68e6-99/s250x400/c6b027b9f5f3a4cdc5bb7039a733eca693bb88cf.gif">
+<br><img src="https://watermelon.crd.co/assets/images/gallery21/b87ca240.gif?v=bc28efca"> <img src="https://watermelon.crd.co/assets/images/gallery21/036806d6.gif?v=bc28efca"> <img src="https://watermelon.crd.co/assets/images/gallery21/a7a57fba.gif?v=bc28efca"> <img src="https://64.media.tumblr.com/82194d62e22990a735cf6ab3a9c52390/ba26786bf37e6022-c7/s250x400/97f9fbff8ce3227c7a03546b939581a8fc439359.gif">
+<br><img src="https://graphic.neocities.org/419028y8g87sfkf9.gif"> <img src="https://64.media.tumblr.com/c6d08a6299b3b0648c705e6119acaa89/c4a7a5ecdea47622-b5/s250x400/6228d22105d28f0111505700e43fd51c4e0f7b94.gif"> <img src="https://watermelon.crd.co/assets/images/gallery21/351f65a9.gif?v=bc28efca"> <img src="https://watermelon.crd.co/assets/images/gallery21/0a5939d2.gif?v=bc28efca">
+<br><img src="https://graphic.neocities.org/tumblr_inline_pgas2aeQyW1v11djx_500.gif"> <img src="https://graphic.neocities.org/tumblr_ovh60hHcNA1wugl5wo2_250.gif"> <img src="https://watermelon.crd.co/assets/images/gallery21/9dd173c4.gif?v=bc28efca"> <img src="https://64.media.tumblr.com/a7effa4487376de6763b45e560cf10a1/c4a7a5ecdea47622-9a/s250x400/7321075547ae70756171fe4e5cf7ae6795a63ef5.gif">
+<br><img src="https://graphic.neocities.org/42639511-6b6c-47ff-b6ce-8f4a57097eef.gif"> <img src="https://64.media.tumblr.com/34f6bb062c6de9c4f38b89a1a8bc7f51/2ee9af58ebc7f5fb-1e/s250x400/caf710a24a6ff13edefac5d00ffb9bc5cb900c8b.gif"> <img src="https://graphic.neocities.org/8b62fabf-9006-42dc-b7ac-20e171eee97c.gif"> <img src="https://watermelon.crd.co/assets/images/gallery22/d402f7f9.gif?v=bc28efca">
+  </details>
+
+  <p align="center">♡ <img src="https://graphic.neocities.org/kitten3.gif" align="center"> <img src="https://graphic.neocities.org/kitten2.gif" align="center"> <img src="https://graphic.neocities.org/kitten10.gif" align="center"> ♡
