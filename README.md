@@ -1,3 +1,4 @@
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=finalfantasyxivonline&label=　hydaelyns blessed𓏵　&color=beff00&style=plastic" /> </p>
 <div align="center">
 <p><i>"In one fleeting moment, lives come and go. Ever moving towards the unknown.</p>
 <p>And in that fleeting moment, they cry for the answer to the question:</p>
