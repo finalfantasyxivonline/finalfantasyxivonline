@@ -16,6 +16,7 @@
 <p>yo waddup, my name is jade. i like grilled cheese. this is a placeholder until i get my new strawpage up and running...</p>
 <p>im in a whole soup of fandoms, and the 'main ones' change often; aside from one, which im sure you can guess</p>
 <p>as of writing, my main fandoms are <b>final fantasy xiv</b>, <b>kingdom hearts</b>, <b>the world ends with you</b>, and <b>garfield</b>! how fun :)</p>
+<p><b>ponytown info:</b> i can normally be found on either of the benches at docks, alone or with friends. feel free to sit with me, just know im more likely to talk if you whisper me!</p>
 <p>lets be friends! sending lots of love to you all</p>
 </details>
 <br>
