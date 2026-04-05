@@ -9,6 +9,9 @@
 <i>[I do not turn to look. I remember a garden, and a sky, and a man, and it is enough. It is enough.
 ](https://na.finalfantasyxiv.com/lodestone/special/tales_from_the_dawn/sidestory_encore/#sidestory_encore)</i>
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=finalfantasyxivonline&label=　scions　&color=90c000&style=plastic"/> </p><div align="center">
+
+![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=smarklings&bg_color=00554b&loved=true)
 
 </div>
+
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=finalfantasyxivonline&label=　scions　&color=90c000&style=plastic"/> </p><div align="center">
