@@ -10,8 +10,6 @@
 ](https://na.finalfantasyxiv.com/lodestone/special/tales_from_the_dawn/sidestory_encore/#sidestory_encore)</i>
 
 
-![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=smarklings&bg_color=00554b&loved=true)
-
 </div>
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=finalfantasyxivonline&label=　scions　&color=90c000&style=plastic"/> </p><div align="center">
